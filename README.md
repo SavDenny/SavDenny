@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SavDenny
-- 👀 I’m interested in design, nature, mauic and building community!
+- 👀 I’m interested in design, nature, music and building community!
 - 🌱 I’m currently learning to illustrate, better market myself, and manage time better.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
